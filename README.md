@@ -1,1 +1,1 @@
-landing page on 3.andrewvysotskiy.ru
+Landing page. You can see it on 3.andrewvysotskiy.ru
